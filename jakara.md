@@ -14,7 +14,7 @@ Jakara's time in the plane was not wholly alone. Fetchlings would often stalk he
 
 She made occasional efforts to climb the northern mountains and made decent progress, once discovering a cave containing a long deceased spell caster and their book of spells. However, eventually travel would be made impossible by the dark and cold and treacherous terrain, so she always turned back.
 
-She survived mostly by foraging for wild berries, and catching "Godji" (a small fish-like creature that look similar to crawfish but taste vaguely like tomatoes). To pass the time she would also read the spell book, as far as she could tell it contained instructions on various occult spells can cantrips which she practiced routinely, only occasionally doing damage to herself.
+She survived mostly by foraging for wild berries, and catching "Godji" (a small fish-like creature that look similar to crawfish but taste vaguely like tomatoes). To pass the time she would also read the spell book, as far as she could tell it contained instructions on various occult spells and cantrips which she practiced routinely, she was pleased that she only once summoned demons that wanted to eat her eyeballs.
 
 ## The following years
 5 years ago a group of wayfarer adventures found their way into the plane and were able to rescue her and returned her to real world. Given that she had no desire to seek out her mother they allowed her entry into the guild.
@@ -30,7 +30,7 @@ Despite the horrors and struggles that come with surviving in the plane she has 
 ## Additional points:
 
 - Cannot drink regular water, only salt water (a weird quirk of staying in the plane for so long) dislikes alcohol for what it did to her mother
-- Occasionally prone to temper tantrums 
+- Prone to temper tantrums when not getting her own way
 - Uneasy when left alone, dislikes the dark, liable for a panic attack when alone in the dark. Has to sleep in the same room as others
 - She has a serious distrust of the clergy and related religious institutions, cannot differentiate between cultists and regular priests
 - None materialistic, only owns things that the Wayfarers have given her, has no desire for riches and social status.
