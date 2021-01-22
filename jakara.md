@@ -10,11 +10,13 @@ At the age of 10 her mother gave her up to a cultist faction in exchange for eve
 ## Life in the demiplane
 The plane she found herself in was dark and unforgiving. Days lasted 30 hours but only gave 10 hours of usable daylight, temperatures were a consistent 5 to 7 degrees and the ground was mostly rough heath land and tundra in the south with vast a vast mountain range to the north. 
 
-Jakara's time in the plane was not wholly alone. Fetchlings would often stalk her, and she learnt early to move between camps in order to keep them at bay or fend them off with the rudimentary magic she was only just beginning to learn.
+Jakara's time in the plane was not wholly alone. Fetchlings(?) would often stalk her, and she learnt early to move between camps in order to avoid them, if it came down to it she would fend them off with the rudimentary magic she was only just beginning to learn.
 
 She made occasional efforts to climb the northern mountains and made decent progress, once discovering a cave containing a long deceased spell caster and their book of spells. However, eventually travel would be made impossible by the dark and cold and treacherous terrain, so she always turned back.
 
 She survived mostly by foraging for wild berries, and catching "Godji" (a small fish-like creature that look similar to crawfish but taste vaguely like tomatoes). To pass the time she would also read the spell book, as far as she could tell it contained instructions on various occult spells and cantrips which she practiced routinely, she was pleased that she only once summoned demons that wanted to eat her eyeballs.
+
+As the years past she grew more accustomed to the Fetchlings, even eventually managing to bre-friend one of the smaller runts creatures which she named Yoko. A cruel and vicious creature Yoko was initially only tolerated because of his desire not to rip Jakara apart, and she would often use him as a target for her spell practice. During one of these practice sessions she managed to polymorph him into a small lizard which he seemed to take to, even becoming enraged if she ever tried to turn him back and fighting with any creature that tried to harm her.
 
 ## The following years
 5 years ago a group of wayfarer adventures found their way into the plane and were able to rescue her and returned her to real world. Given that she had no desire to seek out her mother they allowed her entry into the guild.
