@@ -37,3 +37,6 @@ Despite the horrors and struggles that come with surviving in the plane she has 
 - She has a serious distrust of the clergy and related religious institutions, cannot differentiate between cultists and regular priests
 - None materialistic, only owns things that the Wayfarers have given her, has no desire for riches and social status.
 - Randomly believes that all innkeepers know each other and will constantly ask for "the usual" no matter where she is
+
+## Notes for Tom:
+- I thought her patron could be the cultist who managed to banish her to the demiplane, could he be unaware of their link? Maybe risen in rank in his organisation since she was banished?
