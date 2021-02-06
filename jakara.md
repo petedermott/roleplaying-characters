@@ -18,8 +18,10 @@ She survived mostly by foraging for wild berries, and catching "Godji" (a small 
 
 As the years past she grew more accustomed to the fetchlings, even eventually managing to be-friend one of the smaller runts creatures which she named Yoko. A cruel and vicious creature Yoko was initially only tolerated because of his desire not to rip Jakara apart, and she would often use him as a target for her spell practice. During one of these practice sessions she managed to polymorph him into a small lizard which he seemed to take to, even becoming enraged if she ever tried to turn him back and fighting with any creature that tried to harm her.
 
+2 years ago (1189) the devil within disappeared
+
 ## The following years
-3 years ago (1188) a group of wayfarer adventures found their way into the plane and were able to rescue her and returned her to real world. Given that she had no desire to seek out her mother they allowed her entry into the guild.
+A year ago a group of wayfarer adventures found their way into the plane and were able to rescue her and returned her to real world. Given that she had no desire to seek out her mother they allowed her entry into the guild.
 
 - Mother repented, now dead, wayfairers accepted job anyway.
 - Met up with Reinar in the plane after his stuff.
@@ -33,6 +35,10 @@ Despite the horrors and struggles that come with surviving in the plane she has 
 3. Become a better spell caster
 4. Avoid going into any demiplanes
 
+## when most comfortable
+
+## when out of comfort zone
+
 ## Additional points
 
 - Cannot drink regular water, only salt water (a weird quirk of staying in the plane for so long) dislikes alcohol for what it did to her mother
@@ -44,3 +50,13 @@ Despite the horrors and struggles that come with surviving in the plane she has 
 
 ## Notes for Tom:
 - I thought her patron could be the cultist who managed to banish her to the demiplane, could he be unaware of their link? Maybe risen in rank in his organisation since she was banished?
+
+## Additional notes
+child not kicked out of binding, co-exist
+other devil binders remember what they did, we do not
+entity is one with me, left with normal feelings.
+osra fight, broke network, saw devil both vunerable and very alone made a pact, left to guide yoko
+
+devil would have a name, idea of how old it is, devil is patron
+
+Lore: Devils 
