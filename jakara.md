@@ -19,7 +19,7 @@ She survived mostly by foraging for wild berries, and catching "Godji" (a small 
 As the years past she grew more accustomed to the fetchlings, even eventually managing to be-friend one of the smaller runts creatures which she named Yoko. A cruel and vicious creature Yoko was initially only tolerated because of his desire not to rip Jakara apart, and she would often use him as a target for her spell practice. During one of these practice sessions she managed to polymorph him into a small lizard which he seemed to take to, even becoming enraged if she ever tried to turn him back and fighting with any creature that tried to harm her.
 
 ## The following years
-5 years ago a group of wayfarer adventures found their way into the plane and were able to rescue her and returned her to real world. Given that she had no desire to seek out her mother they allowed her entry into the guild.
+3 years ago (1188) a group of wayfarer adventures found their way into the plane and were able to rescue her and returned her to real world. Given that she had no desire to seek out her mother they allowed her entry into the guild.
 
 - Mother repented, now dead, wayfairers accepted job anyway.
 - Met up with Reinar in the plane after his stuff.
