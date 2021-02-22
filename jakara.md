@@ -45,6 +45,43 @@ Despite the horrors and struggles that come with surviving in the plane she has 
 2. In a church or with a member of the clergy
 3. In the dark
 
+
+## How Jakara feels about...
+
+### Heyton Aldalayne
+Nervous, big boss man is scary. Feels like she is a little bit of an imposter in the guild, even though he has always been polite she is never at ease when in his presence.
+
+### Skallaban Trazandi
+Pretty happy and a touch melancholy. He is the wise old grandpa she never had
+
+### Inisha Arklow
+A combination of awe and distaste. She reminds Jakara of her mother but she cannot deny the mage's skill.
+
+### Marridon Geltair
+Fear and distrust. She hates the clergy and anything remotely religous, she fears he may snatch her away again, will not like to be in the same room as him.
+
+### Erris Banstrom
+Neutral. She seems nice enough but they don't often run in the same circles, Erris seems a little stuck up?
+
+### Fabin Meer
+Jovial. He's fun to be around but no leader, best taken in small doses
+
+### Nylanda Spayle
+OMG BFF LOL, she's so smart and nice and clever and Jakara will.not.leave.her.alone.
+
+### Delly Astaquin-Serron
+Annoying but heart in the right place, she needs to learn to let things go sometimes.
+
+### Old Koll
+He seems pretty smart but a bit of a bull-shitter, doesn't really believe anything he says.
+
+### Albin Hett
+Shy and nervous - she has a bit of a crush on him.
+
+### Jixett
+Sad about his story and he's a bit creepy and weird but he makes some damn fine clothes, maybe he could make me something?
+
+
 ## Additional points
 - Cannot drink regular water, only salt water (a weird quirk of staying in the plane for so long) dislikes alcohol for what it did to her mother
 - Prone to temper tantrums when not getting her own way
