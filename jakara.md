@@ -80,6 +80,16 @@ Shy and nervous - she has a bit of a crush on him.
 ### Jixett
 Sad about his story and he's a bit creepy and weird but he makes some damn fine clothes, maybe he could make me something?
 
+## Other NPCs
+### Darla
+Fuck this stuck up bitch, thinks way to highly of herself. GTFO
+
+### Solan
+So full of shit
+
+### Gramson
+He seems a little crazy? Geniune guy though..
+
 
 ## Additional points
 - Cannot drink regular water, only salt water (a weird quirk of staying in the plane for so long) dislikes alcohol for what it did to her mother
@@ -88,6 +98,7 @@ Sad about his story and he's a bit creepy and weird but he makes some damn fine 
 - She has a serious distrust of the clergy and related religious institutions, cannot differentiate between cultists and regular priests
 - None materialistic, only owns things that the Wayfarers have given her, has no desire for riches and social status.
 - Randomly believes that all innkeepers know each other and will constantly ask for "the usual" no matter where she is
+- Will "forget" about Dark Sky if it happens
 
 ## References in media
 - Judy Hopps (Zootopia)
