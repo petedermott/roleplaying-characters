@@ -99,6 +99,7 @@ He seems a little crazy? Geniune guy though..
 - None materialistic, only owns things that the Wayfarers have given her, has no desire for riches and social status.
 - Randomly believes that all innkeepers know each other and will constantly ask for "the usual" no matter where she is
 - Will "forget" about Dark Sky if it happens
+- Absolutely no sense of style
 
 ## References in media
 - Judy Hopps (Zootopia)
