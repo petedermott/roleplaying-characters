@@ -81,14 +81,11 @@ Shy and nervous - she has a bit of a crush on him.
 Sad about his story and he's a bit creepy and weird but he makes some damn fine clothes, maybe he could make me something?
 
 ## Other NPCs
-### Darla
-Fuck this stuck up bitch, thinks way to highly of herself. GTFO
+### Kaligni
+Abducting the Mazkrans
 
-### Solan
-So full of shit
-
-### Gramson
-He seems a little crazy? Geniune guy though..
+### Mazkrans
+Abducting kids to turn them into Devil Binders
 
 
 ## Additional points
