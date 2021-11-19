@@ -87,6 +87,9 @@ Abducting the Mazkrans
 ### Mazkrans
 Abducting kids to turn them into Devil Binders
 
+## Places
+### Quossen
+Uncomfortable, they possibly were complicit in the devil binding, don't trust anyone in this beautiful place
 
 ## Additional points
 - Cannot drink regular water, only salt water (a weird quirk of staying in the plane for so long) dislikes alcohol for what it did to her mother
@@ -104,3 +107,7 @@ Abducting kids to turn them into Devil Binders
 
 ## Shadow Plane notes
 Like the upside down, permanently dark, difficult to survive, dangerous creatures, strange fungous, like silent hill town, there are odd shadowy versions of places that exist in the material plane
+
+## Training
+1. Nylanda
+2. Jixxit
