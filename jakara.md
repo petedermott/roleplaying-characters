@@ -111,3 +111,8 @@ Like the upside down, permanently dark, difficult to survive, dangerous creature
 ## Training
 1. Nylanda
 2. Jixxit
+
+## Leads
+1. Fetchlings in the shadow plane - maybe the spire in old Hylac?
+2. Lewyen - Last seen in Skyrun (mountain place of ninjas)
+3. Druid book - Schizum of the Malarzi
