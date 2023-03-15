@@ -92,12 +92,11 @@ Abducting kids to turn them into Devil Binders
 Uncomfortable, they possibly were complicit in the devil binding, don't trust anyone in this beautiful place
 
 ## Additional points
-- Cannot drink regular water, only salt water (a weird quirk of staying in the plane for so long) dislikes alcohol for what it did to her mother
+- Dislikes alcohol for what it did to her mother
 - Prone to temper tantrums when not getting her own way
 - Uneasy when left alone, dislikes the dark, liable for a panic attack when alone in the dark. Has to sleep in the same room as others
 - She has a serious distrust of the clergy and related religious institutions, cannot differentiate between cultists and regular priests
 - None materialistic, only owns things that the Wayfarers have given her, has no desire for riches and social status.
-- Randomly believes that all innkeepers know each other and will constantly ask for "the usual" no matter where she is
 - Will "forget" about Dark Sky if it happens
 - Absolutely no sense of style
 
