@@ -21,9 +21,18 @@ When the summons arrived for the reading of Lord Galdric's will, Khorrax saw it 
 2. To become a recognised holy warrior
 3. To not kill _too many_ people in the process of 1 and 2
 
-|                  |              |                |                    |
-| ---------------- | ------------ | -------------- | ------------------ |
+## Most comfortable when...
+1. Carrying things / Lifting things / Smashing things
+2. Eating and drinking
+3. Playing with the kids in the church
+
+## Most uncomfortable when...
+1. Someone is antagonistic with him or other children
+2. High society situations
+3. When having to deal with complex riddles or puzzles 
+
 | TRAIT            | COMFORT ZONE | UNDER PRESSURE | NEVER/ALMOST NEVER |
+| ---------------- | ------------ | -------------- | ------------------ |
 | Arrogant         | ✔️           |                |                    |
 | Aggressive       |              | ✔️             |                    |
 | Apathetic        |              |                | ✔️                 |
